@@ -1,3 +1,3 @@
 # thepilot
-## Email address:
-anbodobi785312@yahoo.com
+## Phone number:
++370677777XX
