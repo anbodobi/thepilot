@@ -1,3 +1,2 @@
 # thepilot
-## Phone number:
-+370677777XX
+## Want to hire me?
